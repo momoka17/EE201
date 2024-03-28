@@ -3,7 +3,7 @@ This is aboutMe
 Adding more text to README in new branch
 # Momoka Sakamoto
 Hello, this is my personal webpage.
-![Momoka headshot](Momoka_headshotoriginal.jpg)
+![Momoka headshot](photoInNY.jpg)
 
 ## About Me
 I'm a sophomore engineering student.
