@@ -13,3 +13,4 @@ Currently, I'm researching in Professor.Eley's lab.
 
 ## Hobbies
 My hobbies are listening to music, watching movies. 
+I like kpop and pop music.
