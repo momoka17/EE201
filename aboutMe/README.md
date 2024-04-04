@@ -14,13 +14,11 @@ Currently, I'm researching in Professor.Eley's lab.
 ## Hobbies
 **- I like traveling a lot** 
 
-The cities I visited are New York, LA, Portland, Vancouver, Busan, Tokyo, Osaka, Kyoto, Hiroshima, Nagasaki, Okinawa. 
-In this summer, I'll go to Berlin for studying abroad and travel in Europe. I want to visit London, Rome, Paris, and explore around Europe.
+The cities I visited are New York, LA, Portland, Vancouver, Busan, Tokyo, Osaka, Kyoto, Hiroshima, Nagasaki, Okinawa.  In this summer, I'll go to Berlin for studying abroad and travel in Europe. I want to visit London, Rome, Paris, and explore around Europe.
 
 **- I like listening to music**
 
-I listen to pop, K-pop, J-pop a lot. The first track of my spring playlist is "Wasurerarenaino" by sakanaction. 
-I'm a big fan of NCT, which is a K-pop group with 26 members. 
+I listen to pop, K-pop, J-pop a lot. The first track of my spring playlist is "Wasurerarenaino" by sakanaction.  I'm a big fan of NCT, which is a K-pop group with 26 members. 
 My heavy rotation is "Space" by NCT 127. My bias is Winwin.
 
 **- I also love watching movies**
