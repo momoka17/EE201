@@ -8,6 +8,8 @@ I'm a sophomore undergraduate student majoring in Electrical Computer Engineerin
 
 I'm interested in nanoscience and nanotechnology. I want to engage in implementation of nanotechnology, materials in the future.
 
+Connect with me on [LinkedIn](www.linkedin.com/in/momoka-sakamoto-8366a9256)
+
 ## Academic Experience
 **Current Experience**
 
